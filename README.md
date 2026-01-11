@@ -2,5 +2,5 @@
 
 
 
-Fornite king & Hefty Squad owner.  Dad streamer & gamer, I love playing with my daughter!! (づ｡^‿‿^｡)づ
-I love hangin out with my fam & playin with followers. - HeftyHoldmUp on everything.
+ㅤㅤㅤFornite king & Hefty Squad owner.  Dad streamer & gamer, I love playing with my daughter!! (づ｡^‿‿^｡)づ
+ㅤㅤㅤㅤㅤI love hangin out with my fam & playin with followers. - HeftyHoldmUp on everything.
