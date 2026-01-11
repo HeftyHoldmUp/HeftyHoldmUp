@@ -6,4 +6,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI love hangin out with my fam & playin with followers. - HeftyHoldmUp on everything.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤThis is a wip, my daughter made this for me and it is not finished yet.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤThis is a wip, my daughter made this for me and it is not finished yet.
